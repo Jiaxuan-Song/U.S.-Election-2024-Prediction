@@ -1,1 +1,0 @@
-# U.S.-Election-2024-Prediction
